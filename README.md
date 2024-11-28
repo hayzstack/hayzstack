@@ -9,7 +9,10 @@ ill probably make this prettier.... probably....
 ### stuff about me
 im mostly people watching/afk since im too nervous to speak to anyone
 i do cosplays of my fav characters. sometimes im not even in the fandom anymore (GI)
-since i do infact, have a life im mostly semi-active
+
+since i do infact have a life, im mostly semi-active
+
+im not too big on shipping, but i respect those who ship. just dont force it onto me... 
 
 
 ### i like these (fandoms, stuff i like doing, youtubers,,, blaj blah blah you get it)
