@@ -1,4 +1,29 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=FF63D7&width=600&height=70&lines=I+can't+escape+my+fate%2C+the+writing's+on+the+wall.)](https://git.io/typing-svg)
+![alt text](https://i.imgur.com/9VEqGVu.jpeg "writing on the wall by will stetson")
+
+hi im hayzstack ! , or hayz for short.
+this is for linking my PT account ough
+ill probably make this prettier.... probably....
+
+---
+
+### stuff about me
+im mostly people watching/afk since im too nervous to speak to anyone
+i do cosplays of my fav characters. sometimes im not even in the fandom anymore (GI)
+since i do infact, have a life im mostly semi-active
+
+
+### i like these (fandoms, stuff i like doing, youtubers,,, blaj blah blah you get it)
+hsr, hi3, mcyt(specifically hermitcrafters), plan3, magic the noah,
+playing, people watching, uhhh idk.... whoops
+
+### i dont like these (DNI)
+
+shipping me with people(be it in cosplay or not, NO.), dni criteria, sexual themes, hazbin hotel & every other problematic fandom
+###### (ps: yes, i block and hide freely even if its not listed in here)
+
+---
+
+im free to interact with anybody, other than the "i dont like these" listed down. 
 <!---
 hayzstack/hayzstack is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
