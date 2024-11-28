@@ -7,7 +7,7 @@ ill probably make this prettier.... probably....
 ---
 
 ### stuff about me
-im mostly people watching/afk since im too nervous to speak to anyone
+im mostly people watching/afk since im too nervous to speak to anyone. find me at bread lines, library, i move a lot
 i do cosplays of my fav characters. sometimes im not even in the fandom anymore (GI)
 
 c+h is welcomed and highly encouraged. im not putting it in my pony name nuh uh
