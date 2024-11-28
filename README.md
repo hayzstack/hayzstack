@@ -10,7 +10,9 @@ ill probably make this prettier.... probably....
 im mostly people watching/afk since im too nervous to speak to anyone
 i do cosplays of my fav characters. sometimes im not even in the fandom anymore (GI)
 
-since i do infact have a life, im mostly semi-active
+c+h is welcomed and highly encouraged. im not putting it in my pony name nuh uh
+
+since i do infact have a life, im mostly semi-active and offtab. i dont respond to whispers often/VERY late
 
 im not too big on shipping, but i respect those who ship. just dont force it onto me... 
 
@@ -26,7 +28,7 @@ shipping me with people(be it in cosplay or not, NO.), dni criteria, sexual them
 
 ---
 
-im free to interact with anybody, other than the "i dont like these" listed down. 
+im free to interact with anybody, other than the "i dont like these" listed down. i genuinely enjoy company, but i just lack the words to express it 
 <!---
 hayzstack/hayzstack is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
