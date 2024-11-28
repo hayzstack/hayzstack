@@ -16,10 +16,11 @@ since i do infact have a life, im mostly semi-active and offtab. i dont respond 
 
 im not too big on shipping, but i respect those who ship. just dont force it onto me... 
 
+i am so. so bad at small talk. like genuinely. i can listen but not talk
+
 
 ### i like these (fandoms, stuff i like doing, youtubers,,, blaj blah blah you get it)
-hsr, hi3, mcyt(specifically hermitcrafters), plan3, magic the noah,
-playing, people watching, uhhh idk.... whoops
+hsr, hi3, mcyt(specifically hermitcrafters), plan3, magic the noah, playing, people watching, uhhh idk.... whoops
 
 ### i dont like these (DNI)
 
