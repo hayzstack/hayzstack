@@ -12,7 +12,7 @@ i do cosplays of my fav characters. sometimes im not even in the fandom anymore 
 
 c+h is welcomed and highly encouraged. im not putting it in my pony name nuh uh
 
-since i do infact have a life, im mostly semi-active and offtab. i dont respond to whispers often/VERY late
+since i do infact have a life, im mostly semi-active and offtab. i play on my freetime as a time waster, i dont respond to whispers often/VERY late
 
 im not too big on shipping, but i respect those who ship. just dont force it onto me... 
 
