@@ -25,7 +25,7 @@ hsr, hi3, mcyt(specifically hermitcrafters), plan3, magic the noah, playing, peo
 ### i dont like these (DNI)
 
 shipping me with people(be it in cosplay or not, NO.), dni criteria, sexual themes, hazbin hotel & every other problematic fandom
-###### (ps: yes, i block and hide freely even if its not listed in here)
+###### (ps: yes, i ignore most of these, but i will block and hide freely)
 
 ---
 
