@@ -1,5 +1,7 @@
 ![alt text](https://i.imgur.com/9VEqGVu.jpeg "writing on the wall by will stetson")
 
+![](https://komarev.com/ghpvc/?username=hayzstack&color=lightgray)
+
 hello, im hayzstack, hayz for short. 
 
 c+h is welcome (and encouraged)
